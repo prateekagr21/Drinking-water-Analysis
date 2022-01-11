@@ -13,7 +13,7 @@ Assuming that standards of living continue to rise, the requirement of potable w
 A key United Nations report indicates that water shortages will affect 2.3 billion people or 30% of the world's population in four dozen nations by 2025. <br> Already, the crisis of potable water in most developing countries is creating public health emergencies of staggering proportions._
 
 
-_The quality of water governs life of an organism on the earth.
+_The quality of water governs life of like almost every organism on the earth.
 Hence, researchers around the world are engaged on framing the systematic approach and policy for
 the long-term conservation of good-quality water.
 Historical evidences show that change in water quality and quantity due to anthropogenic pressure
